@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dgzmnck
-- 👀 I’m getting married soon to Charmane <3
+- 👀 Married to Charmane <3
 - 🌱 I’m currently learning webdev
 - 💞️ I’m looking to collaborate on anything that can give me learning
 - 📫 How to reach me. Im on facebook. facebook.com/nicko.deguzman
